@@ -48,7 +48,7 @@
 
 
 
-> 如果你愿意了解更多可以联系我们 Email: yogurt777@protonmail.com , 或添加微信了解我们的信仰
+> 如果你愿意了解更多可以联系我们 Email: yogurt777@protonmail.com , 或添加微信（xiesong13）了解我们的信仰
 
 <img src="img/QR code.jpg" alt="QR code" style="zoom:50%;" />
 
